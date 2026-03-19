@@ -1,0 +1,1 @@
+Thu nghiem doc file
